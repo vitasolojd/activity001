@@ -15,3 +15,8 @@
 
 
 <img width="1366" height="768" alt="lara" src="https://github.com/user-attachments/assets/797513ee-6a6f-4352-a5e3-e40afa2b222f" />
+
+
+Acitvity 2:
+
+https://drive.google.com/file/d/1XxfYYzdISbsb-ivzehzRn7oMf8v-en-G/view?usp=sharing
