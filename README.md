@@ -19,4 +19,4 @@
 
 Acitvity 2:
 
-https://drive.google.com/file/d/1XxfYYzdISbsb-ivzehzRn7oMf8v-en-G/view?usp=sharing
+https://drive.google.com/file/d/1Jy2V0Wi6gR04JIa2k3N_oeWS8zd4iaeM/view?usp=drive_link
